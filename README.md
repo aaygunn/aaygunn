@@ -6,6 +6,6 @@
 
 💞️ Her projeye tam bir bağlılıkla yaklaşırım ve başladığım işi bitene kadar azimle çalışırım. Yeni teknolojiler öğrenmeye ve projelerimde uygulamaya istekliyim; bu, sürekli gelişim yolunda önemli bir adımdır.
 
-📫 İletişim için <a href="aaygunn@gmail.com>e-posta adresim</a> veya LinkedIn ve GitHub profilim üzerinden benimle iletişime geçebilirsiniz. Sizinle yeni projelerde bir araya gelmeyi ve birlikte daha fazla şey öğrenmeyi dört gözle bekliyorum! 
+📫 İletişim için e-posta adresim veya LinkedIn ve GitHub profilim üzerinden benimle iletişime geçebilirsiniz. Sizinle yeni projelerde bir araya gelmeyi ve birlikte daha fazla şey öğrenmeyi dört gözle bekliyorum! 
 
 🚀 Profilimi ziyaret ettiğiniz için teşekkür ederim!
